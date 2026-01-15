@@ -1,3 +1,3 @@
-# Belajar Git : Edisi Serius banget
+# TIM BUBUR DIADUK
 ini aku belajar git euyy
 AKU MENCOBA PERUBAHAN BESAR, HIDUP JOKOWIII
